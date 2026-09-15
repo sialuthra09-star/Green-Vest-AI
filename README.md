@@ -8,9 +8,6 @@ https://drive.google.com/file/d/1Pi4Y0Ty4gt3QBwHb6OMm5XBLfT9CIc__/view?usp=drive
 
 
 
-
-
-
 🌱 GreenVest AI
 
 AI-Powered Solar Energy Investment & Risk Analyzer
